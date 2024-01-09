@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @polparossa.
+- 👀 I’m interested in a lot.
+- 🌱 I’m currently learning something.
+- 💞️ I’m looking to collaborate on projects.
+- 📫 How to reach me? Try.
+- 😄 Pronouns: X/D
+- ⚡ Fun fact: I love many of things.

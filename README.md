@@ -2,6 +2,6 @@
 - 👀 I’m interested in a lot.
 - 🌱 I’m currently learning something.
 - 💞️ I’m finding out how to collaborate on projects.
-- 📫 How to reach me? ¯\_(ツ)_/¯
+- 📫 How to reach me? Find out.
 - 😄 Pronouns: X/D
 - ⚡ Fun fact: ('-')

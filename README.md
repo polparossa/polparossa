@@ -1,7 +1,1 @@
-- 👋 Hi, I’m polparossa.
-- 👀 I’m interested in a lot.
-- 🌱 I’m currently learning something.
-- 💞️ I’m finding out how to collaborate on projects.
-- 📫 How to reach me? Find out.
-- 😄 Pronouns: X/D
-- ⚡ Fun fact: ('-')
+hi, i'm new here.

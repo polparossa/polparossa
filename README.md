@@ -1,1 +1,1 @@
-hi, i'm new here.
+print ("hello")
